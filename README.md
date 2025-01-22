@@ -1,2 +1,1 @@
-# portfolio
-Hii My name is Yugandhar Reddy Kavalakuntla 
+Hi, I'm Yugandhar Reddy Kavalakuntla
